@@ -2,5 +2,5 @@
  
  Just getting started. What can I do with this?! 
  
- Im ready to learn =)
+ I'm ready to learn!
  
